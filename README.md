@@ -1,6 +1,3 @@
-# EwokVillage
-VR will get updated quickly.
-My site will change a lot...
-But I will upload multiple sites
-This website is mostly Star Wars
-It is Virtual Reality too
+I may close this website due to inactivity.
+Feel free to use the CTRL + Alt + I to edit the 3d world
+put on a headset for a more emersive feel!!
